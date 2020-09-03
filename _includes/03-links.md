@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Scottish Fold ranked Top Japanese Cat](https://www.nippon.com/en/japan-data/h00662/scottish-fold-tops-japanese-cat-ranking.html)
